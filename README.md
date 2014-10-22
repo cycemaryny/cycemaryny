@@ -1,5 +1,5 @@
 OOOOOOOOOJAAAAA linuch na windowsie dziwko maryny!
 
-*UPDAtE HUJU!*
+*UPDAtE H--U!*
 
 **DwieKropkiDziwko**
